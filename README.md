@@ -1,2 +1,5 @@
 # PythonTrojan
 Random python trojan i made one day to fuck with pc's
+IT IS THE END USERS RESPONSIBILITY AFTER THE DAMAGE IS DONE! 
+THE DAMAGE THAT THE VIRUS MADE CANNOT BE UNDONE
+BE CAREFUL WITH IT!
